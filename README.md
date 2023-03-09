@@ -1,3 +1,3 @@
-### average gta 5 lua user
+# average gta 5 lua user
 
-💬 Discord:᲼x#2674
+###💬 Discord:᲼x#2674
