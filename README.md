@@ -1,4 +1,4 @@
-# average gta 5 lua user
+# average gtav and roblox lua user
 
 ***💬 Discord: zes#0001***
 
