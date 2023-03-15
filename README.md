@@ -1,6 +1,6 @@
 # average gta 5 lua user
 
-***💬 Discord:.x#2674***
+***💬 Discord: zes#0001***
 
 ***Main LUA Projects***
 ```
