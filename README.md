@@ -1,6 +1,6 @@
 # average gtav and roblox lua user
 
-***💬 Discord: zes#0001***
+***💬 Discord: z.es***
 
 ***Main LUA Projects***
 ```
